@@ -1,6 +1,6 @@
 # FORESIGHT-AND-INVENTORY-RETAIL-PROJECT
 
-
+https://docs.google.com/document/d/15eks7MO1IaElirRL5Ted4M-ll54nUXpp/edit?usp=sharing&ouid=100431230640383601294&rtpof=true&sd=true
 
 # FORESIGHT & INVENTORY MANAGEMENT
 
